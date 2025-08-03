@@ -45,3 +45,13 @@ Ilmu Allah mencakup ilmu akhirat dan ilmu dunia. Pada keduanya kita bisa mendapa
 
 1. **Ilmu akhirat** - bermanfaat untuk kita masuk syurga.
 2. **Ilmu dunia** - bermanfaat untuk keberlangsungan hidup dan tangga untuk mencapai kebaikan lebih luas.
+
+## Hal yang bisa dilatih
+### 1. Mintalah pertolongan kepada Allah dalam segala sesuatu
+Ketika menghadapi segala sesuatu seperti kesulitan memahami ilmu, berusaha memperbaiki diri, dll, ketahuilah bahwa Allah memiliki ilmu meliputi langit dan bumi, dan Allah memiliki kunci kemudahan untuk semua hal. Allah sangat dekat daripada urat leher manusia.
+
+### 2. Terapkan cara mengakses ilmu Allah
+Manusia diberi kelebihan oleh Allah berupa akal. Maka gunakan akal tersebut untuk berfikir, belajar, dan terus melebarkan pengetahuannya.
+
+### 3. Selalu haus untuk banyak belajar
+Ulama zaman dahulu diberi gelar **Allamah**, dan gelar tersebut diberikan kepada orang yang memiliki ilmu yang luas, tidak hanya tentang 1 hal, namun ada banyak lagi. Contohnya Al-Khawarizmi, beliau tidak hanya berilmu agama, namun juga ahli dalam matematika, astronomi, astrologi, geografi, dll.
